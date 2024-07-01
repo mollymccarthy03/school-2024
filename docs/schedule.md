@@ -1,3 +1,9 @@
+## Detailed Schedule
+
+<p>
+  Some details in the schedule will change before the event and there are some additions to make, but the overall plan here is accurate.
+</p>
+
 ## August 4 (Sunday)
 ### Welcome Dinner for Students and Staff
 <p>More information TBD</p>
